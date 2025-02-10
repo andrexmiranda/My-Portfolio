@@ -20,4 +20,3 @@ If you have any questions or want to collaborate, feel free to reach out:
 
 Email: andre8.miranda@gmail.com
 
-LinkedIn: Your Profile
